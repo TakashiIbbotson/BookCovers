@@ -1,5 +1,5 @@
 
-# BookCovers
+# Book Covers
 
 On beginning this task the first thing I did was look through the books I had at home to get an idea of what type of books I would be interested in designing.  The first book I saw that I was interested in was called 'Missing Judy' by Anne Cassidy. I'd read this book a few times and I enjoyed the story.  The story involved a child who had been missing for 8 years when new leads begin to show and so the case is reopened.  I researched the book to find any book covers created for the book.
 
@@ -46,19 +46,33 @@ For A Doll's house I decided to use the title and create a sketch-like image of 
 
 <img src="http://i.imgur.com/Bxafdxq.jpg">
 
-The Crucible is about the 15th Century Witch Trials in Salem.  For this reason I chose a noose.  Nooses place a large part within the play as this is the method of capital punishment for suspected witches.  Through the book many young women are killed by this method or face charges punishable by hanging.  Once again I created a sketch-like image.  
+The Crucible is about the 15th Century Witch Trials in Salem.  For this reason I chose a noose.  Nooses place a large part within the play as this is the method of capital punishment for suspected witches.  Through the book many young women were killed by this method or face charges punishable by hanging.  Once again I created a sketch-like image to keep the consistency within the three book covers.  
 
 <img src="http://i.imgur.com/oBbIW1w.jpg">
 
-The Catcher in the Rye is about a young boy who runs away from his boarding school and finds his place in New York where he meets drugs, alcohol and woman.  Almost all of the book is based in New York so for this reason I depicted the Empire State building.  
+The Catcher in the Rye is about a young boy who runs away from his boarding school and finds his place in New York where he meets drugs, alcohol and woman.  Almost all of the book is based in New York so for this reason I depicted the Empire State building using the same style as the other two images.
 
 <img src="http://i.imgur.com/Y7aYdC1.jpg">
 
 Once I had created these book covers I knew these would be my final choices for books however I needed to create some variations in order to see what I would like best. 
 
 
+<img src="http://postimg.org/image/gkfhh0c09/">
+
+I decided I prefer the author's names at the bottom as they looked too cramped together at the top with the titles.  I put these in the middle of the cover in order to keep the centered theme down the page.  
+
+<img src="http://i.imgur.com/94HQHxF.jpg">
+
+
+I then decided to put these on some covers and tested them on Amazon pages to see what they would look like.  
+
+<img src="http://i.imgur.com/2ngNYwr.jpg">
+<img src="http://i.imgur.com/7E6fR0g.jpg">
+<img src="http://i.imgur.com/gYWika0.jpg">
+<img src="http://i.imgur.com/fp1lvBI.jpg">
+<img src="http://i.imgur.com/ydT4GlO.jpg">
+<img src="http://i.imgur.com/VG8eRxW.jpg">
 <img src="">
 
-<img src="">
 
 <img src="">
