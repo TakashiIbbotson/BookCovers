@@ -1,10 +1,4 @@
 
-<style>
-
-img {width:100px;}
-
-</style>
-
 # Book Covers
 
 On beginning this task the first thing I did was look through the books I had at home to get an idea of what type of books I would be interested in designing.  The first book I saw that I was interested in was called 'Missing Judy' by Anne Cassidy. I'd read this book a few times and I enjoyed the story.  The story involved a child who had been missing for 8 years when new leads begin to show and so the case is reopened.  I researched the book to find any book covers created for the book.
@@ -50,7 +44,7 @@ My final idea was for some classic plays.  I chose A Doll's House by Henrik Ibse
 
 For A Doll's house I decided to use the title and create a sketch-like image of a doll's house.  The play features a woman called Nora whose life is shown through the deterioration of her marriage in what appears to be a male society.  Through the book she is depicted almost as a doll that her husband plays with for his amusement.  Her life seems perfect but in reality it's not.
 
-<img src="http://i.imgur.com/Bxafdxq.jpg">
+<img src="http://i.imgur.com/Bxafdxq.jpg" style="width:300px;">
 
 The Crucible is about the 15th Century Witch Trials in Salem.  For this reason I chose a noose.  Nooses place a large part within the play as this is the method of capital punishment for suspected witches.  Through the book many young women were killed by this method or face charges punishable by hanging.  Once again I created a sketch-like image to keep the consistency within the three book covers.  
 
@@ -78,7 +72,3 @@ I then decided to put these on some covers and tested them on Amazon pages to se
 <img src="http://i.imgur.com/fp1lvBI.jpg">
 <img src="http://i.imgur.com/ydT4GlO.jpg">
 <img src="http://i.imgur.com/VG8eRxW.jpg">
-<img src="">
-
-
-<img src="">
