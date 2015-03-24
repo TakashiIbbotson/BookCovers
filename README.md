@@ -15,10 +15,10 @@ I began to think about the main points in the book and the most memorable part f
 
 After creating this book cover I realised I couldn't think of any books of the same genre or the same author so after I created this I began to think of other books I liked.  As one of my favourite series of books is Harry Potter I decided to select a few of the books to design for.  I decided to keep the flat silhouette style design that I had used for Missing Judy.  I began to research the Harry Potter books to see the covers.
 
-https://victorsmoviereviews.files.wordpress.com/2011/07/harrypotterbookcovers-1-7.jpg
+<img src="https://victorsmoviereviews.files.wordpress.com/2011/07/harrypotterbookcovers-1-7.jpg">
 
-http://2.bp.blogspot.com/-YwVI0Ae9WIQ/Udqf2kJo8_I/AAAAAAAABIg/haR-2gA_nmw/s1600/Harry+Potter.jpg
+<img src="http://2.bp.blogspot.com/-YwVI0Ae9WIQ/Udqf2kJo8_I/AAAAAAAABIg/haR-2gA_nmw/s1600/Harry+Potter.jpg">
 
-https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcR--iwPZxibICsgpP-7Y9BXbs_bg8y9guK6C_GkLJyJnhypwdqSEg
+<img src="https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcR--iwPZxibICsgpP-7Y9BXbs_bg8y9guK6C_GkLJyJnhypwdqSEg">
 
 I began to think of which books I would choose and in the end I decided on The Philosopher's Stone, The Prisoner of Azkaban and The Deathly Hallows.  I wasn't sure what I would put on each cover.  For The Philsopher's Stone I decided to use a chess piece.  Wizard's Chess plays a large part within the books.  Not only is Harry introduced to it within the book and plays it throughout his school year with Ron Weasley 
