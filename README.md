@@ -33,7 +33,7 @@ I chose a full moon for the Prisoner of Azkaban to represent Proffesor Lupin's a
 
 For The Goblet of Fire I decided to take the words for what they were so I put a silhouette version of the goblet of fire itself onto the cover.  This was an important part of the movie as it was The Goblet of Fire which chose the champions for The Triwizard Tournament that had been tampered with by Barty Crouch Jr.
 
-<img src="http://imgur.com/BGgSEAQ,7Szd1fG,QoKrpjI,PC3Ig0L#1">
+<img src="http://i.imgur.com/fiJlO7G.jpg">
 
 I didn't like the lack of consistency within these covers.  I felt as though The Prisoner of Azkaban cover didn't match as it wasn't a black silhouette and I didn't like it so I decided to choose another book.   The Deathly Hallows was easy for me to design.  I simply used the Deathly Hallows symbol.  The Deathly Hallows symbol represents the three items that represent the gift each character within The Tale of The Three Brothers.  These are the Elder Wand, The Invisibility Cloak and the Ressurection Stone. 
 
