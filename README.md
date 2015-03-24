@@ -21,6 +21,44 @@ After creating this book cover I realised I couldn't think of any books of the s
 
 <img src="https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcR--iwPZxibICsgpP-7Y9BXbs_bg8y9guK6C_GkLJyJnhypwdqSEg">
 
-I began to think of which books I would choose and in the end I decided on The Philosopher's Stone, The Prisoner of Azkaban and The Deathly Hallows.  I wasn't sure what I would put on each cover.  For The Philsopher's Stone I decided to use a chess piece.  Wizard's Chess plays a large part within the books.  Not only is Harry introduced to it within the book and plays it throughout his school year with Ron Weasley but he also has to play a lifesize version of Wizard Cheese in which he takes the place of the Bishop in order to get to the Philsopher's Stone.  I originally planned to choose a Bishop for the front cover however I didn't like the way it looked so instead I chose the King.  I chose a piece and used the Threshold tool within Photoshop to create a silhouette effect.  I chose a full moon for the Prisoner of Azkaban to represent Proffesor Lupin's ailment to the moon.  As he was a Werewolf and this held a lot of value within the book and was the reason he stopped teaching at the post of Defense Against The Dark Arts I decided to use this. The Deathly Hallows was easy for me to design.  I simply used the Deathly Hallows symbol.  The Deathly Hallows symbol represents the three items that represent the gift each character within The Tale of The Three Brothers.  These are the Elder Wand, The Invisibility Cloak and the Ressurection Stone.  
+I began to think of which books I would choose and in the end I decided on The Philosopher's Stone, The Prisoner of Azkaban and The Goblet of Fire.  I wasn't sure what I would put on each cover.  
 
-<img src="http://i.imgur.com/bXU3WQP.jpg">
+For The Philsopher's Stone I decided to use a chess piece.  Wizard's Chess plays a large part within the books.  Not only is Harry introduced to it within the book and plays it throughout his school year with Ron Weasley but he also has to play a lifesize version of Wizard Cheese in which he takes the place of the Bishop in order to get to the Philsopher's Stone.  I originally planned to choose a Bishop for the front cover however I didn't like the way it looked so instead I chose the King.  I chose a piece and used the Threshold tool within Photoshop to create a silhouette effect. 
+
+<img src="http://i.imgur.com/QoKrpjI.jpg">
+
+I chose a full moon for the Prisoner of Azkaban to represent Proffesor Lupin's ailment to the moon.  As he was a Werewolf and this held a lot of value within the book and was the reason he stopped teaching at the post of Defense Against The Dark Arts I decided to use this.  
+
+<img src="http://i.imgur.com/BGgSEAQ.jpg">
+
+For The Goblet of Fire I decided to take the words for what they were so I put a silhouette version of the goblet of fire itself onto the cover.  This was an important part of the movie as it was The Goblet of Fire which chose the champions for The Triwizard Tournament that had been tampered with by Barty Crouch Jr.
+
+<img src="http://imgur.com/BGgSEAQ,7Szd1fG,QoKrpjI,PC3Ig0L#1">
+
+I didn't like the lack of consistency within these covers.  I felt as though The Prisoner of Azkaban cover didn't match as it wasn't a black silhouette and I didn't like it so I decided to choose another book.   The Deathly Hallows was easy for me to design.  I simply used the Deathly Hallows symbol.  The Deathly Hallows symbol represents the three items that represent the gift each character within The Tale of The Three Brothers.  These are the Elder Wand, The Invisibility Cloak and the Ressurection Stone. 
+
+<img src="http://i.imgur.com/PC3Ig0L.jpg">
+
+My final idea was for some classic plays.  I chose A Doll's House by Henrik Ibsen, The Crucible by Arthur Miller and eventually I chose The Catcher in The Rye by J.D Salinger even though it wasn't a play but I still counted it as a classic.  
+
+
+For A Doll's house I decided to use the title and create a sketch-like image of a doll's house.  The play features a woman called Nora whose life is shown through the deterioration of her marriage in what appears to be a male society.  Through the book she is depicted almost as a doll that her husband plays with for his amusement.  Her life seems perfect but in reality it's not.
+
+<img src="http://i.imgur.com/Bxafdxq.jpg">
+
+The Crucible is about the 15th Century Witch Trials in Salem.  For this reason I chose a noose.  Nooses place a large part within the play as this is the method of capital punishment for suspected witches.  Through the book many young women are killed by this method or face charges punishable by hanging.  Once again I created a sketch-like image.  
+
+<img src="http://i.imgur.com/oBbIW1w.jpg">
+
+The Catcher in the Rye is about a young boy who runs away from his boarding school and finds his place in New York where he meets drugs, alcohol and woman.  Almost all of the book is based in New York so for this reason I depicted the Empire State building.  
+
+<img src="http://i.imgur.com/Y7aYdC1.jpg">
+
+Once I had created these book covers I knew these would be my final choices for books however I needed to create some variations in order to see what I would like best. 
+
+
+<img src="">
+
+<img src="">
+
+<img src="">
